@@ -2,7 +2,7 @@
 ### 联系方式
 - 手机：18855526890
 - email:chenshaobin000001@163.com
-
+- Useful link: http://qinhongwei.com/2015/03/25/Fei-fei-Li-s-advice/
 ### 个人信息
 - 陈少斌/男/1998.01.04
 - 本科：安徽工业大学/数学与应用数学
